@@ -1,13 +1,7 @@
-<img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/dee5a206-511f-43a3-b88e-f934748b71b0" />
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .✦ . 　⁺ 　 . ✦  .  ⁺  . . .  ꒰ঌ·✦·໒꒱ . . . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .✦ . 　⁺ 　 . ✦  .  ⁺  . 
-୨୧ C+H . Int . Whisper . Inspo (✔) 
+<p align="center">
+  <img src="https://github.com/orangejuyce/orangejuyce/raw/main/assets/profile-image.png" alt="Cream the Rabbit with Chao and Easter eggs" width="400"/>
+</p>
 
-⊹ Cover (❌)
-
-⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂😼⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂
-
-♡ , Sarklings (sark fans) DNI.
-
-♡ , Pedos/Pro\Dark-shippers DNI.
-
-♡ , Character sexualizers 👎🏾👎🏾 DNI.
+<p align="center">
+  <strong>Wrapping my pony hooves around sarklings necks</strong>
+</p>
