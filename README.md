@@ -1,6 +1,5 @@
 <p align="center">
-  <img src="https://github.com/orangejuyce/orangejuyce/raw/main/assets/profile-image.png" alt="Cream the Rabbit with Chao and Easter eggs" width="400"/>
-</p>
+ https://preview.redd.it/does-anyone-else-have-a-primal-and-irrational-resentment-v0-mwsnoeidlrdd1.jpeg?width=640&crop=smart&auto=webp&s=d7d17b2e98d2a7431d18699acc6ad5a0da47491f
 
 <p align="center">
   <strong>Wrapping my pony hooves around sarklings necks</strong>
