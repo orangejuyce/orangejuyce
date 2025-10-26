@@ -10,7 +10,7 @@ Ponytown things!
 
 ✦ I have a huge cover trigger, Unless a friend is covering me PLEASE refrain from doing so.
 
-✦ I am very short tempered, Still working on that so always iwec!
+✦ I have really bad anger issues and i'm overly monotone at times, Working on this but try to iwc always.
 
 ✦ I'm not a tone-tag user, Take everything i say as a joke unless i say i am serious about it.
 
