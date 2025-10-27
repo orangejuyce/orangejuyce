@@ -16,6 +16,12 @@ Ponytown things!
 
 ✦ PLEASE, Please, Refrain from making sexual jokes, I'll most likely block/hide you for the time being. -This doesn't count 4 close friends
 
+✦ I'm overly sensitive, If you don't want to be bothered please just tell me that😥
+
+✦ I get burnt out easily depending who i'm talking to, I try not to talk too much but i always do so if you dont like yappers then.. 🤷‍♂️
+
+✦ I WILL take everything you say and do to heart, Whether i've known you 4 a long time or not.
+
 ♡ I'm always either in the sth area, Under the shops, Under/Near the dr/ut area!
 -------------------------------------------------------------------------------------------------------------
 
