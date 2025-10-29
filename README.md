@@ -17,6 +17,8 @@ Ponytown things aka byi / dni
 
 ❀   If we used to be friends and left off on neutral terms, Idm re-friending you!, I most likely was just in a bad state so feel free!
 
+!   If we aren't friends anymore DO NOT harrass me, I'm usually lenient but people who spread lies or try and send people after me gen pmo.
+
 ALWAYS found around the sth , Dr / Ut , Under the shops , Inbetween dw & dr / Ut.
 --
 Small things about me!
