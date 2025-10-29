@@ -13,7 +13,7 @@ Ponytown things aka byi / dni
 
 ♡    W2i always, I am either always offtab and or with friends / family (online & irl), I don't do well with randoms coming up to me.
 
-⟡    I am overly sensitive and will take everything you say to heart, Whether your a friend or not.
+⟡    I am overly sensitive and will take everything you say to heart, Whether your a friend or not, SO DO NOT snap at me.
 
 ❀   If we used to be friends and left off on neutral terms, Idm re-friending you!, I most likely was just in a bad state so feel free!
 
