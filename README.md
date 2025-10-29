@@ -1,4 +1,4 @@
-Welcome to My page , , Links ->> <a href="https://marssszs.straw.page">@strawpage! </a> ☆ <a href="https://en.pronouns.page/@orangejuyce">@prnspage! </a> ☆ <a href="https://guns.lol/orangejuyce">@guns.lol! </a>
+Welcome to My page , , Links ->> <a href="https://marssszs.straw.page">@strawpage! </a> ☆ <a href="https://guns.lol/orangejuyce">@guns.lol! </a>
 -
 <img width="960" height="960" alt="image" src="https://github.com/user-attachments/assets/04e06f4c-f5d3-4eb8-87b0-f53b76b6ac83" />
 
