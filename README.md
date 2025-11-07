@@ -6,7 +6,6 @@
 
 
 
-hi i really love christmas uh.. ask me 4 discord 🤕🤕😸
 
  <a href="https://marsliketheplanetwow.straw.page">@Strawpage </a> , <a href="https://en.pronouns.page/@orangejuyce">@Pronounspage </a> , <a href="https://guns.lol/orangejuyce">@Guns.lol </a>
 ---
