@@ -37,6 +37,17 @@ Nature and astronomy, Two of my most favorite topics in life woohoo.
 ??? I stick purely to yumeshipping nor do i like debating ships or opinions for a matter of fact, If the ship isn't toxic or illegal/weird idgaf ship what u want.
 
 -------------------------------------
-mentions of more ppl uhh and stuff ig, ill add more when i feel like it ☝🏾
 
-<a href="https://github.com/R0S1EP0S1ES">@SAKI/TAILS </a> , <a href="https://github.com/C00kieOasis">@COOKIE </a> , <a href="https://github.com/anglwngs">@LUNIVE </a> , <a href="https://github.com/PikoPikoHammer">@AMES/CAKE </a> , <a href="https://github.com/silverxpt">@SILVER/OKINOS </a> , <a href="https://github.com/yuivsie">@ELYSIA </a> , <a href="https://github.com/ArmyDreamerz">@EXCAL/TIKAL/NIMUE </a> , <a href="https://github.com/lazikoly">@LAZY </a> , <a href="https://github.com/chomperoni">@CHOMP </a> , <a href="https://github.com/kittvz0nkyy">@KITTY </a> , <a href="https://github.com/MYSWEETPASSION">@SETSUNA </a> , <a href="https://github.com/AmySweetPassion">@AMY </a> , <a href="https://github.com/blueblurred">@SAMMIE </a> , <a href="https://github.com/iiyxaj">@IIXY </a> , <a href="https://github.com/retrocrush">@RETRO <a> , <a href="https://github.com/johtrio">@VIL <a> , <a href="https://github.com/metalsboyfriend">@XAN </a> + more moots uhh.. ill mention yall at some point mb
+VINN MAKE A DAMN GITHUB GRR 🍅🍅😡👿👿😒 pmo
+
+My big sister! ->> <a href="https://github.com/PikoPikoHammer">@AMES/CAKE </a> ^_^ <a href="https://github.com/R0S1EP0S1ES">@SAKI/TAILS </a> , <a href="https://github.com/anglwngs">@LUNIVE </a> <<- Irl little siblings!
+
+Siblings! (OR bestfriends) ->> <a href="https://github.com/C00kieOasis">@COOKIE </a> . <a href="https://github.com/silverxpt">@SILVER/OKINOS </a> . <a href="https://github.com/yuivsie">@ELYSIA </a> . <a href="https://github.com/metalsboyfriend">@XAN </a>
+
+Stinky guy BOO 🍅🍅!! ->> <a href="https://github.com/blueblurred">@SAMMIE </a>
+
+Bestest friend 😸 ->> <a href="https://github.com/johtrio">@VIL <a>
+
+MY SON MIZZ! ->> <a href="https://gitb.com/mizzcakes">@VIL <a>
+
+Really cool people & friends ->> <a href="https://github.com/iiyxaj">@IIXY </a> . <a href="https://github.com/MYSWEETPASSION">@SETSUNA </a> . <a href="https://github.com/ArmyDreamerz">@EXCAL/TIKAL/NIMUE </a> . <a href="https://github.com/lazikoly">@LAZY </a> . <a href="https://github.com/chomperoni">@CHOMP </a> . <a href="https://github.com/kittvz0nkyy">@KITTY </a> . <a href="https://github.com/retrocrush">@RETRO <a>
