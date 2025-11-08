@@ -27,14 +27,18 @@ If you piss me off i'll probably just hide you for the time being, If you don't 
 
 Refrain from making sex jokes/suggestive jokes towards me, You'll probably just get hidden cause that shits weird.
 
+I get overwhelmed really easily plspls dont get mad at me if i start tweaking 🙏🏾
+
+OK ANOTHER THING.. please don't talk about cannibalism around me, That shit geniuenly makes me sick.
+
 ----
 Interests or something
 --
-Cuphead, Batim, Ddlc, Ut/Dr, Sth, Scps, Popee the preformer, Urban legends, Resident evil, Plants vs zombies, Other shit i done forgot to add.
+Cuphead, Batim, Ddlc, Ut/Dr, Sth, Scps, Popee the preformer, Urban legends, Resident evil, Plants vs zombies, Little nightmares, Piggy, OTHER old fandoms and stuff.
 
 Nature and astronomy, Two of my most favorite topics in life woohoo.
 
-??? I stick purely to yumeshipping nor do i like debating ships or opinions for a matter of fact, If the ship isn't toxic or illegal/weird idgaf ship what u want.
+??? I stick purely to yumeshipping nor do i like debating ships or opinions so..
 
 -------------------------------------
 
