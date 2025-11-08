@@ -48,6 +48,6 @@ Stinky guy BOO 🍅🍅!! ->> <a href="https://github.com/blueblurred">@SAMMIE <
 
 Bestest friend 😸 ->> <a href="https://github.com/johtrio">@VIL <a>
 
-MY SON MIZZ! ->> <a href="https://gitb.com/mizzcakes">@VIL <a>
+MY SON MIZZ! ->> <a href="https://gitb.com/mizzcakes">@MIZZ <a>
 
 Really cool people & friends ->> <a href="https://github.com/iiyxaj">@IIXY </a> . <a href="https://github.com/MYSWEETPASSION">@SETSUNA </a> . <a href="https://github.com/ArmyDreamerz">@EXCAL/TIKAL/NIMUE </a> . <a href="https://github.com/lazikoly">@LAZY </a> . <a href="https://github.com/chomperoni">@CHOMP </a> . <a href="https://github.com/kittvz0nkyy">@KITTY </a> . <a href="https://github.com/retrocrush">@RETRO <a>
