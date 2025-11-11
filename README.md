@@ -14,14 +14,8 @@ ok!!! my only dni is weirdos, ppl who make sex jokes (unless REALLY close friend
 
 -------------------------------------
 
-VINN MAKE A DAMN GITHUB GRR 🍅🍅😡👿👿😒 pmo
+insert vinn if this ho had a github sighh..
 
-My big sister! ->> <a href="https://github.com/PikoPikoHammer">@AMES/CAKE </a> ^_^ <a href="https://github.com/R0S1EP0S1ES">@SAKI/TAILS </a> , <a href="https://github.com/anglwngs">@LUNIVE </a> <<- Irl little siblings!
+AWESOME ONLINE FAMILY <a href="https://github.com/PikoPikoHammer">@AMIE </a> . <a href="https://github.com/R0S1EP0S1ES">@SAKI </a> , <a href="https://github.com/anglwngs">@LUNIVE </a> . <a href="https://github.com/C00kieOasis">@COOKIE </a> . <a href="https://github.com/silverxpt">@SLIBBY </a> . <a href="https://github.com/yuivsie">@ELYSIA </a> . <a href="https://github.com/metalsboyfriend">@XAN </a> . <a href="https://gitb.com/mizzcakes">@MIZZ <a> 
 
-REALLY AWESOME SIBLINGS (or close friends ok same thing) ->> <a href="https://github.com/C00kieOasis">@COOKIE </a> . <a href="https://github.com/silverxpt">@SILVER/OKINOS </a> . <a href="https://github.com/yuivsie">@ELYSIA </a> . <a href="https://github.com/metalsboyfriend">@XAN </a>
-
-slime this guy out 🍅🍅 ->> <a href="https://github.com/blueblurred">@SAMMIE </a>
-
-outcome memories sweat ->> <a href="https://gitb.com/mizzcakes">@MIZZ <a>
-
-Really cool people & friends/moots ->> <a href="https://github.com/iiyxaj">@IIXY </a> . <a href="https://github.com/MYSWEETPASSION">@SETSUNA </a> . <a href="https://github.com/ArmyDreamerz">@EXCAL/TIKAL/NIMUE </a> . <a href="https://github.com/lazikoly">@LAZY </a> . <a href="https://github.com/chomperoni">@CHOMP </a> . <a href="https://github.com/kittvz0nkyy">@KITTY </a> . <a href="https://github.com/retrocrush">@RETRO <a> . <a href="https://github.com/johtrio">@VIL <a> . <a href="https://github.com/Yuuki0nixx">@PHOENIX <a>
+AMAZING FRIENDS/MOOTS <a href="https://github.com/blueblurred">@SAMMIE </a> . <a href="https://github.com/iiyxaj">@IIXY </a> . <a href="https://github.com/MYSWEETPASSION">@SETSUNA </a> . <a href="https://github.com/ArmyDreamerz">@EXCAL/TIKAL/NIMUE </a> . <a href="https://github.com/lazikoly">@LAZY </a> . <a href="https://github.com/chomperoni">@CHOMP </a> . <a href="https://github.com/kittvz0nkyy">@KITTY </a> . <a href="https://github.com/retrocrush">@RETRO <a> . <a href="https://github.com/johtrio">@VIL <a> . <a href="https://github.com/Yuuki0nixx">@PHOENIX <a>
