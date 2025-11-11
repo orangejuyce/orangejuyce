@@ -10,7 +10,7 @@
 
  <a href="https://marsliketheplanetwow.straw.page">@Strawpage </a> , <a href="https://en.pronouns.page/@orangejuyce">@Pronounspage </a> , <a href="https://guns.lol/orangejuyce">@Guns.lol </a> . <a href="https://marsaboutmee.straw.page">@ABOUTME!! </a>
 ---
-ok!!! my only dni is weirdos, ppl who make sex jokes (unless REALLY close friend), SARKLINGS (cosplayers, supporters, defenders) proshippers/darkshippers, incest shit, COAAL fans and probably more things.. JUST BE NORMAL 💔💔 
+ok!!! my only dni proshippers/darkshippers, sarklings (cosplayers and everything of the sort) PEOPLE WHO ARE FRIENDS WITH SARKLINGS, Sex jokes made towards me UNLESS extremely close friend 🙏🏾🙏🏾
 
 -------------------------------------
 
