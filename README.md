@@ -12,6 +12,8 @@
 ---
 ok!!! my only dni proshippers/darkshippers, sarklings (cosplayers and everything of the sort) PEOPLE WHO ARE FRIENDS WITH SARKLINGS, Sex jokes made towards me UNLESS extremely close friend 🙏🏾🙏🏾
 
+THIS WILL BE REMADE!! same thing with all socials but im lazy so, have fun with these not up to date ones..! sobs
+
 -------------------------------------
 
 insert vinn if this ho had a github sighh..
