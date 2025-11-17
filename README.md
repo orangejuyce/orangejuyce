@@ -1,10 +1,5 @@
-<img width="540" height="363" alt="image" src="https://github.com/user-attachments/assets/e3064b81-b4d8-48a1-8814-e91e134663dc" />
+<img width="652" height="652" alt="image" src="https://github.com/user-attachments/assets/9ea88328-3b9d-433d-8b95-003901217911" />
 
-
-
-
-
-<a href="https://www.tumblr.com/spongecakery">@SPONGEYCAKERY </a> <-- Creds 2 art/artist above on tumblr
 
 
 
