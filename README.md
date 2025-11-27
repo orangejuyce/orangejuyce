@@ -2,7 +2,7 @@
 
 
 
-[strawpage](https://strawthepagesz.straw.page) 🎄 [pronouns page](https://en.pronouns.page/@orangejuyce) ⛄ [guns.lol](https://guns.lol/orangejuyce)
+[strawpage](https://strawthepagesz.straw.page) 🎄 [pronouns page](https://en.pronouns.page/@orangejuyce) ⛄ [guns.lol](https://guns.lol/orangejuyce) 🍪 [agereg info](https://ihatehtispalslls.straw.page)
 ----------
 Well hiya!, I'm mars and uhhh.. i'm pretty cool i think, Feel free to whisper me or smth. Follows are appreciated and i'll follow u back if u ask !!!
 thanks for visiting my page! (yes this github is thrown together because im too lazy to make it look nice.. 😴😴)
