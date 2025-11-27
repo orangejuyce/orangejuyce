@@ -19,7 +19,7 @@ extra about me stuff i guess??
 - i tend to be very passive aggressive, I do NOT use tone tags either.. sigh so! take everything i say as a joke unless stated otherwise.
 - im really nice trust!, i yap a lot.. im sorry 🙏🏾🙏🏾
 - IM REALLY PASSIONATE abt my interests and nature and what not.. 
-- I tend to involuntarily age regress A LOT.. (☁) Means im partly regressed to a nostalgic stand point, (🌑) Im fully regressed (dniup at this time pls) 
+- I tend to involuntarily age regress A LOT.. pls iwec or dniup at this time
 - I like bendystraw a lot can you tell? i like bendystraw A LOTTTTTTTTTTTTTTTTTT...
 
 hey.. cookie i think I KNOW what YOU did... @C00kieOasis
