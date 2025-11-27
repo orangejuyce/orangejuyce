@@ -9,7 +9,7 @@ thanks for visiting my page! (yes this github is thrown together because im too 
 sarklings/sark defenders, problematic people and anyone associated with them PLEASEEEE DNI. this goes along with other basic dni stuff on my straw.
 
 ------------------
-Usually always sitting with my online family which is... -> [@CAKE !](https://github.com/PikoPikoHammer) . [@SAKI !](https://github.com/R0S1EP0S1ES) . [LUNIVE !](https://github.com/anglwngs) . [@EXE !](https://github.com/instrumentofchaos) . [@SLIBBY !](https://github.com/silverxpt) . [@COOKIE !](https://github.com/C00kieOasis)
+Usually always sitting with my online family which is... -> [@CAKE !](https://github.com/PikoPikoHammer) . [@SAKI !](https://github.com/R0S1EP0S1ES) . [@LUNIVE !](https://github.com/anglwngs) . [@EXE !](https://github.com/instrumentofchaos) . [@SLIBBY !](https://github.com/silverxpt) . [@COOKIE !](https://github.com/C00kieOasis)
 and other online family / close friends <33 I LOVE U GUYS!!!
 you can find me at camps, under shops, SOMETIMES welcome home, Outskirts of sth, Or against random trees... wherever my party is i am 😎 ! !
 
