@@ -3,5 +3,5 @@
 
 
 
-[strawpage](https://strawthepagesz.straw.page) 🌎 [pronouns.cc](https://pronouns.cc/@orangejuyce) 🧪 [guns.lol](https://guns.lol/orangejuyce)  . . socials .
+| [strawpage](https://strawthepagesz.straw.page) . [pronouns.cc](https://pronouns.cc/@orangejuyce) . [guns.lol](https://guns.lol/orangejuyce) | Socials are regularly updated
 ---
