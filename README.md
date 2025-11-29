@@ -2,7 +2,5 @@
 
 
 
-
-
-| [strawpage](https://strawthepagesz.straw.page) . [pronouns.cc](https://pronouns.cc/@orangejuyce) . [guns.lol](https://guns.lol/orangejuyce) | <- Socials
----
+all socials are in revamp once again sighs
+-------
