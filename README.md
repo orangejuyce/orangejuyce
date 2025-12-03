@@ -20,3 +20,8 @@ ${\textsf{\color{#F9F6EE}Director = Cake}}$
 <div align="center"> 
 
 ${\textsf{\color{#FDFD96}Heavy cover discomfort , Follow the cool people in mentions!}}$
+
+[Yaoi council forms link!!](https://forms.gle/A8qtAKqXiA8w58tH8) 
+
+this is purely for fun.. not an actual council ok!!
+<div align="center"> 
