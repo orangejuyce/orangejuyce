@@ -4,7 +4,7 @@
 <div align="center">
 
 
-[🎄Color](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . . [Strawpage](https://doctorxeno.straw.page) . . [Pronouns.cc](https://pronouns.cc/@orangejuyce)
+[🎄Color](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . . [Strawpage](https://doctorxeno.straw.page) . . [Pronouns.cc](https://pronouns.cc/@orangejuyce) . . [Guns.lol](https://guns.lol/orangejuyce)
 -------
 
 
