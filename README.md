@@ -8,13 +8,15 @@
 -------
 
 
-${\textsf{\color{#ffe5d9}Yaoi council ! !}}$
+${\textsf{\color{#FDFD96}Yaoi council ! !}}$
 <div align="center"> 
 
-${\textsf{\color{#ffcdb2}Yuri attorney general -> Lunive}}$ . ${\textsf{\color{#e5989b}Enby adminastrator = Noelle}}$ . ${\textsf{\color{#b5838d}Mars <- Yaoi president}}$
+${\textsf{\color{#ffcdb2}Yuri attorney general -> Lunive}}$ . ${\textsf{\color{#F9F6EE}Enby adminastrator = Noelle}}$ . ${\textsf{\color{#e5989b}Mars <- Yaoi president}}$
 
-${\textsf{\color{#6d6875}Mizz <- secretary}}$ . ${\textsf{\color{#ffb4a2}Vice president -> Vinn}}$
+${\textsf{\color{#b5838d}Mizz <- secretary}}$ . ${\textsf{\color{#b5838d}Vice president -> Vinn}}$
 <div align="center"> 
   
-${\textsf{\color{#ffe5d9}Director = Cake}}$
+${\textsf{\color{#F9F6EE}Director = Cake}}$
 <div align="center"> 
+
+${\textsf{\color{#FDFD96}Heavy cover discomfort , Follow the cool people in mentions!}}$
