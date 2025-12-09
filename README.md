@@ -17,4 +17,4 @@
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cutive+Mono&size=22&letterSpacing=6px&duration=2000&pause=1000&color=FFE684&center=true&random=true&width=435&lines=%40ORANGEJUYCE;%40YAOIGODD" alt="Typing SVG" /></a>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312zywrzmo3obywsqduo3no5xlki&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=f2e291&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=312zywrzmo3obywsqduo3no5xlki&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312zywrzmo3obywsqduo3no5xlki&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&mode=dark&bar_color=51e6e4&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312zywrzmo3obywsqduo3no5xlki&redirect=true)
