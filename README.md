@@ -7,7 +7,11 @@ ${\textsf{\color{#008B8B}" Love becomes obssesion and obsession becomes consumpt
 
 ${\textsf{\color{#3AB09E}c+h if stated in name . dncover . w2i}}$
 
-${\textsf{\color{#B2FFFF}socials are still in wip sigh... currently on social break}}$
+${\textsf{\color{#B2FFFF}Feel free to take inspo}}$
+
+^_^
+
+[Strawpage](https://questionmarksallover.straw.page) . [About me](https://doctorxeno.straw.page) . [Color ->🎄](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . [Pronouns page](https://en.pronouns.page/@orangejuyce)
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/b578554d-18e2-48e3-a32d-61194d9ff695" />
 
