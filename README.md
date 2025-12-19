@@ -9,7 +9,7 @@ ${\textsf{\color{#3AB09E}c+h if stated in name . dncover . w2i}}$
 
 ${\textsf{\color{#B2FFFF}Feel free to take inspo}}$
 
-quitting pt / taking a break until after christmas !
+taking a break until after christmas !
 
 [Strawpage](https://questionmarksallover.straw.page) . [About me](https://doctorxeno.straw.page) . [Color ->🎄](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . [Pronouns page](https://en.pronouns.page/@orangejuyce)
 
