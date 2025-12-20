@@ -11,7 +11,7 @@ ${\textsf{\color{#B2FFFF}Feel free to take inspo}}$
 
 taking a break until after christmas !
 
-[Strawpage](https://questionmarksallover.straw.page) . [About me](https://doctorxeno.straw.page) . [Color ->🎄](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . [Pronouns page](https://en.pronouns.page/@orangejuyce)
+[About me](https://doctorxeno.straw.page) . [Color ->🎄](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . [Pronouns page](https://en.pronouns.page/@orangejuyce)
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/b578554d-18e2-48e3-a32d-61194d9ff695" />
 
