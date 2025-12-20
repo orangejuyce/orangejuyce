@@ -7,7 +7,7 @@ ${\textsf{\color{#008B8B}most likely quitting pt or rarely going to be on anymor
 
 ${\textsf{\color{#3AB09E}Thanks 4 all the follows !!}}$
 
-${\textsf{\color{#B2FFFF}@orangejuyce on disc}}$
+@orangejuyce on disc / internet_paradox on insta
 
 [About me](https://doctorxeno.straw.page) . [Color ->🎄](https://colormytree.me/2025/01KB95X49BH70RQD6N0ZVJD9P4) . [Pronouns page](https://en.pronouns.page/@orangejuyce)
 
