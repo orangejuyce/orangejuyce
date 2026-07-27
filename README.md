@@ -24,12 +24,13 @@ ${\textsf{\color{#f2a45c}"}}$ ${\textsf{\color{#99426c}Bore the shadows}}$ ${\te
   
 ${\textsf{\color{#ff7a68}DO NOT INTERACT!!}}$    
 ${\textsf{\color{#ffb572}profics/pro/darkshippers}}$    
-${\textsf{\color{#ff7a68}sexual jokes of any kind}}$    
-${\textsf{\color{#ffb572}zoophiles}}$    
+${\textsf{\color{#ff7a68}sexual jokes of any kind / dark humor}}$    
+${\textsf{\color{#ffb572}zoophiles + sh promoters}}$    
 ${\textsf{\color{#714099}tcoaal}}$    
-${\textsf{\color{#28256e}sarklings}}$    
+${\textsf{\color{#28256e}sarklings / sark supporters}}$    
 ${\textsf{\color{#714099}Hazbin hotel / Helluva boss fans}}$     
 ${\textsf{\color{#28256e}Sth and Dw pls iwecau most of yall be weird srry..}}$  
+${\textsf{\color{#714099}Qwel supporters}}$
 
 <div align="center">
   
