@@ -1,6 +1,6 @@
 <div align="CENTER">
 
-${\textsf{\color{#ab3e5d}"}}$ ${\textsf{\color{#f2a45c}The moon will}}$ ${\textsf{\color{#f37f55}sing a song}}$ ${\textsf{\color{#f45a4e}for me, I}}$ ${\textsf{\color{#ab3e5d}loved You like}}$ ${\textsf{\color{#99426c}the sun..!}}$ ${\textsf{\color{#f2a45c}"}}$
+![link](https://file.garden/aWXs9X2vkSBfdVZ-/ezgif-4-83f348b6ac.png)  ${\textsf{\color{#ab3e5d}"}}$ ${\textsf{\color{#f2a45c}The moon will}}$ ${\textsf{\color{#f37f55}sing a song}}$ ${\textsf{\color{#f45a4e}for me, I}}$ ${\textsf{\color{#ab3e5d}loved You like}}$ ${\textsf{\color{#99426c}the sun..!}}$ ${\textsf{\color{#f2a45c}"}}$
 
 <div align="CENTER">
 
@@ -8,7 +8,7 @@ ${\textsf{\color{#ab3e5d}"}}$ ${\textsf{\color{#f2a45c}The moon will}}$ ${\texts
 
 <div align="center">
   
-${\textsf{\color{#f2a45c}"}}$ ${\textsf{\color{#99426c}Bore the shadows}}$ ${\textsf{\color{#ab3e5d}that you made}}$  ${\textsf{\color{#f45a4e}with no}}$ ${\textsf{\color{#f37f55}light of}}$ ${\textsf{\color{#f2a45c}my own!}}$ ${\textsf{\color{#ab3e5d}"}}$
+${\textsf{\color{#f2a45c}"}}$ ${\textsf{\color{#99426c}Bore the shadows}}$ ${\textsf{\color{#ab3e5d}that you made}}$  ${\textsf{\color{#f45a4e}with no}}$ ${\textsf{\color{#f37f55}light of}}$ ${\textsf{\color{#f2a45c}my own!}}$ ${\textsf{\color{#ab3e5d}"}}$ ![link](https://file.garden/aWXs9X2vkSBfdVZ-/ezgif-4-b0a5e1a6a6.png)
 
 <div align="center">
   
