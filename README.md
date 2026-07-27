@@ -1,18 +1,44 @@
-<div align="center">
+<div align="CENTER">
 
-![1](https://media.discordapp.net/attachments/1448557270937108605/1527745849113972847/tumblr_4d870d7d7b53276e80bb905e4cc8a4fa_e7e17bd9_400.jpg?ex=6a5bc7b2&is=6a5a7632&hm=f1e81db8449e88b425183f6d24ecfd5a16eb66654a06c4bad762d53f1f1e54ac&=&format=webp&width=310&height=350)
+${\textsf{\color{#ab3e5d}"}}$ ${\textsf{\color{#f2a45c}The moon will}}$ ${\textsf{\color{#f37f55}sing a song}}$ ${\textsf{\color{#f45a4e}for me, I}}$ ${\textsf{\color{#ab3e5d}loved You like}}$ ${\textsf{\color{#99426c}the sun..!}}$ ${\textsf{\color{#f2a45c}"}}$
 
-![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=Hotpockets&color=e6b49c&abbreviated=true)    
-${\textsf{\color{#f2b5d4}Hollow}}$   ${\textsf{\color{#eff7f6}.}}$   ${\textsf{\color{#b2f7ef}He/Him}}$   
-${\textsf{\color{#7bdff2}17}}$   
-${\textsf{\color{#eff7f6}Dncover}}$   ${\textsf{\color{#caffbf}W2i}}$   ${\textsf{\color{#f7d6e0}C+H}}$
+<div align="CENTER">
 
+![ahh](https://media.discordapp.net/attachments/1448557270937108605/1531094509843386378/2026_07_26_0xx_Kleki.png?ex=6a67f661&is=6a66a4e1&hm=5e018f4b5bf4f29f7610062bd403453171922699c45448065b7b0c5ea41535be&=&format=webp&quality=lossless&width=786&height=527)
 
 <div align="center">
+  
+${\textsf{\color{#f2a45c}"}}$ ${\textsf{\color{#99426c}Bore the shadows}}$ ${\textsf{\color{#ab3e5d}that you made}}$  ${\textsf{\color{#f45a4e}with no}}$ ${\textsf{\color{#f37f55}light of}}$ ${\textsf{\color{#f2a45c}my own!}}$ ${\textsf{\color{#ab3e5d}"}}$
 
-
+<div align="center">
+  
 ![lol](https://media.discordapp.net/attachments/1448557270937108605/1523912425110503586/tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640.gif?ex=6a50788b&is=6a4f270b&hm=1d1437c5e67619177c44e61271ee9948683da0e279a37f891bb4c002e2b00964&=)
 
-![0](https://sewerwolfx.neocities.org/graphics/imvubuttons/12rainbow/12.gif) ![1](https://sewerwolfx.neocities.org/graphics/imvubuttons/6lightblue/49.gif) ![2](https://sewerwolfx.neocities.org/graphics/imvubuttons/8indigo/4.gif) ![3](https://sewerwolfx.neocities.org/graphics/imvubuttons/8indigo/7.gif) ![5](https://sewerwolfx.neocities.org/graphics/imvubuttons/5turquoise/2.gif)  
+<div align="center">
+<table border="3">
+     <tr>
+       <td>
+         <br> 
+         
+<div align="center">
+  
+${\textsf{\color{#ff7a68}DO NOT INTERACT!!}}$    
+${\textsf{\color{#ffb572}profics/pro/darkshippers}}$    
+${\textsf{\color{#ff7a68}sexual jokes of any kind}}$    
+${\textsf{\color{#ffb572}zoophiles}}$    
+${\textsf{\color{#714099}tcoaal}}$    
+${\textsf{\color{#28256e}sarklings}}$    
+${\textsf{\color{#714099}Hazbin hotel / Helluva boss fans}}$     
+${\textsf{\color{#28256e}Sth and Dw pls iwecau most of yall be weird srry..}}$  
 
-${\textsf{\color{#d6f8ff}TY FOR 200+ FOLLOWS}}$ ^o^!!
+<div align="center">
+  
+![lol](https://media.discordapp.net/attachments/1448557270937108605/1523912425110503586/tumblr_f27679d01a59184053a0874b8e7fd0e8_1bc94002_640.gif?ex=6a50788b&is=6a4f270b&hm=1d1437c5e67619177c44e61271ee9948683da0e279a37f891bb4c002e2b00964&=)
+  
+![link](https://media.discordapp.net/attachments/1448557270937108605/1531052233532244008/Untitled808_20260726173357.png?ex=6a67cf02&is=6a667d82&hm=129742238e4fb33a811f99af15ef69ce69ec3b24e9fe0bc979a914659bd9c941&=&format=webp&quality=lossless&width=423&height=423)
+
+<div align="center">
+
+![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=GOOFYGOOBERS!!&color=ab3e5d&abbreviated=true) 
+
+<div align="center">
