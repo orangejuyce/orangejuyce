@@ -27,6 +27,7 @@ ${\textsf{\color{#ffb572}profics/pro/darkshippers}}$
 ${\textsf{\color{#ff7a68}sexual jokes of any kind / dark humor}}$    
 ${\textsf{\color{#ffb572}zoophiles + sh promoters}}$    
 ${\textsf{\color{#714099}tcoaal}}$    
+${\textsf{\color{#ffb572}ppl who age up children in general}}$ 
 ${\textsf{\color{#28256e}sarklings / sark supporters}}$    
 ${\textsf{\color{#714099}Hazbin hotel / Helluva boss fans}}$     
 ${\textsf{\color{#28256e}Sth and Dw pls iwecau most of yall be weird srry..}}$  
