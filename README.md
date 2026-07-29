@@ -28,7 +28,7 @@ ${\textsf{\color{#a77a32}Qwel supporters}}$
 
 <div align="center">
   
-![link](https://media.discordapp.net/attachments/1448557270937108605/1532089934037389462/image-d813-gradientmap.pro.png?ex=6a6b9571&is=6a6a43f1&hm=0ecb68130294ac7dc7954eeb2623d84822230293891e5198af369b67c47a2555&=&format=webp&quality=lossless&width=423&height=423)  
+![link](https://media.discordapp.net/attachments/1448557270937108605/1532099268738027741/2026_07_29_0ov_Kleki.png?ex=6a6b9e22&is=6a6a4ca2&hm=98b4c2bc294131a745b9d39700a73fb20dbbc57472bced5c5d4e37335b76f880&=&format=webp&quality=lossless)
 
 <div align="center">
 
