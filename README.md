@@ -24,7 +24,7 @@ ${\textsf{\color{#d1b26b}ppl who age up children in general}}$
 ${\textsf{\color{#dbcba1}sarklings / sark supporters}}$    
 ${\textsf{\color{#d1b26b}Hazbin hotel / Helluva boss fans}}$     
 ${\textsf{\color{#af8e42}Sth and Dw pls iwecau most of yall be weird srry..}}$  
-${\textsf{\color{#a77a32}Qwel supporters}}$
+${\textsf{\color{#a77a32}Qwel supporters}}$    
 ${\textsf{\color{#9e611d}THOSE yume shippers who be tweaking}}$ 
 
 <div align="center">
