@@ -30,7 +30,7 @@ ${\textsf{\color{#774414}20+ / -14 dniuc/f}}$
 
 <div align="center">
   
-![link](https://media.discordapp.net/attachments/1448557270937108605/1532099268738027741/2026_07_29_0ov_Kleki.png?ex=6a6b9e22&is=6a6a4ca2&hm=98b4c2bc294131a745b9d39700a73fb20dbbc57472bced5c5d4e37335b76f880&=&format=webp&quality=lossless)
+![link](https://media.discordapp.net/attachments/1448557270937108605/1532983522120171570/2026_07_29_0ov_Kleki.png?ex=6a6ed5a9&is=6a6d8429&hm=095215f7f705c5a58a460c6abd1833c05a56326751e58ec091bd7a5b878b71aa&=&format=webp&quality=lossless)
 
 <div align="center">
 
