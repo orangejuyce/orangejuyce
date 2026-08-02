@@ -25,8 +25,8 @@ ${\textsf{\color{#dbcba1}sarklings / sark supporters}}$
 ${\textsf{\color{#d1b26b}Hazbin hotel / Helluva boss fans}}$     
 ${\textsf{\color{#af8e42}Sth and Dw pls iwecau most of yall be weird srry..}}$  
 ${\textsf{\color{#a77a32}Qwel supporters}}$    
-${\textsf{\color{#9e611d}THOSE yume shippers who be tweaking}}$   
-${\textsf{\color{#774414}20+ / -14 dniuc/f}}$
+${\textsf{\color{#9e611d}people who use the term yume incorrectly}}$   
+${\textsf{\color{#774414}everyone jst iwcare i dont have a specific age range ok}}$
 
 <div align="center">
   
