@@ -1,43 +1,32 @@
-<div align="CENTER">
+<div align="center">
+  
+![link](https://media.discordapp.net/attachments/1448557270937108605/1533763052862967860/Untitled836.png?ex=6a71aba7&is=6a705a27&hm=60258a2e3edc9cbc64ec9def1da9b3f25f3155fcb6ec023b8d8f49b38aca842d&=&format=webp&quality=lossless&width=512&height=401)
 
-![ahh](https://media.discordapp.net/attachments/1448557270937108605/1532089935371173968/Untitled821_20260729141714.png?ex=6a6b9571&is=6a6a43f1&hm=a7ae7cc6f363d83ce812b42641f18caeb9b7b116865802253ce723a159503fc4&=&format=webp&quality=lossless&width=638&height=423)
+![](https://file.garden/aRJiOL-RcxklS7T1/pixel_1.png)    ${\textsf{\color{#F1E4E8}H}}$ ${\textsf{\color{#D8C7CE}O}}$ ${\textsf{\color{#CEB1BE}L}}$ ${\textsf{\color{#C4929A}L}}$ ${\textsf{\color{#B97375}O}}$ ${\textsf{\color{#966265}W}}$   
+${\textsf{\color{#F1E4E8}1}}$ ${\textsf{\color{#D8C7CE}7}}$   
+${\textsf{\color{#CEB1BE}H}}$  ${\textsf{\color{#C4929A}e}}$  ${\textsf{\color{#B97375}/}}$  ${\textsf{\color{#966265}V}}$  ${\textsf{\color{#69797A}o}}$  ${\textsf{\color{#648D8D}i}}$  ${\textsf{\color{#5FA19F}d}}$   
+${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69797A}H}}$ ${\textsf{\color{#735055}.}}$ ${\textsf{\color{#966265}W}}$ ${\textsf{\color{#B97375}2}}$ ${\textsf{\color{#C4929A}I}}$   ![](https://file.garden/aRJiOL-RcxklS7T1/pixel_2.png)
+
+<details><summary><b> Dni stuffs.. </b> </summary> 
+
+${\textsf{\color{#F1E4E8}DO NOT INTERACT!!}}$  
+${\textsf{\color{#D8C7CE}Profics/pro/darkshippers}}$  
+${\textsf{\color{#CEB1BE}Sexual jokes pls iwc unless ik u}}$  
+${\textsf{\color{#C4929A}Zoos, SH/SA enfluencers}}$  
+${\textsf{\color{#B97375}Tcoaal + dark humor}}$  
+${\textsf{\color{#966265}Ppl who age up children in general}}$  
+${\textsf{\color{#735055}Sarklings / sark supporters}}$  
+${\textsf{\color{#966265}Hazbin hotel / Helluva boss fans}}$  
+${\textsf{\color{#B97375}Sth and Dw pls iwecau most of yall be weird srry..}}$  
+${\textsf{\color{#C4929A}Qwel supporters}}$  
+${\textsf{\color{#CEB1BE}People who fw my opps yall r gettin blocked bruh}}$  
+${\textsf{\color{#D8C7CE}Iwcare all ages ok.. ok}}$  
+${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper and x unpleasant makes me uncomfy srry}}$
+
+${\textsf{\color{#F1E4E8}art is mine teeeheee... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!
 
 <div align="center">
   
-![link](https://file.garden/aWXs9X2vkSBfdVZ-/ltnk5a.png)  ${\textsf{\color{#e9d4a0}"We're on the}}$ ${\textsf{\color{#b5964c}road}}$ ${\textsf{\color{#975717}to romance."}}$  
-${\textsf{\color{#975717}"That's safe}}$ ${\textsf{\color{#e9d4a0}to}}$ ${\textsf{\color{#b5964c}say!"}}$  ![link](https://file.garden/aWXs9X2vkSBfdVZ-/ezgif-3-e49f025d83-1.png)
+![link](https://media.discordapp.net/attachments/1448557270937108605/1533763052380487751/Untitled835.png?ex=6a71aba7&is=6a705a27&hm=f3ee6028650c71244849b2f7e24e4b88092a63eecd3e69a0745cfb0861317985&=&format=webp&quality=lossless&width=640&height=469)
 
-<div align="center">
-<table border="3">
-     <tr>
-       <td>
-         <br> 
-         
-<div align="center">
-  
-${\textsf{\color{#dbcba1}DO NOT INTERACT!!}}$    
-${\textsf{\color{#774414}profics/pro/darkshippers}}$    
-${\textsf{\color{#9e611d}sexual jokes of any kind / dark humor}}$    
-${\textsf{\color{#a77a32}zoophiles + sh promoters}}$    
-${\textsf{\color{#af8e42}tcoaal}}$    
-${\textsf{\color{#d1b26b}ppl who age up children in general}}$     
-${\textsf{\color{#dbcba1}sarklings / sark supporters}}$    
-${\textsf{\color{#d1b26b}Hazbin hotel / Helluva boss fans}}$     
-${\textsf{\color{#af8e42}Sth and Dw pls iwecau most of yall be weird srry..}}$  
-${\textsf{\color{#a77a32}Qwel supporters}}$    
-${\textsf{\color{#9e611d}people who use the term yume incorrectly}}$   
-${\textsf{\color{#774414}everyone jst iwcare i dont have a specific age range ok}}$
-
-<div align="center">
-  
-![link](https://media.discordapp.net/attachments/1448557270937108605/1532983522120171570/2026_07_29_0ov_Kleki.png?ex=6a6ed5a9&is=6a6d8429&hm=095215f7f705c5a58a460c6abd1833c05a56326751e58ec091bd7a5b878b71aa&=&format=webp&quality=lossless)
-
-<div align="center">
-
-![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=AntiquesOwned!&color=af8e42&abbreviated=true) 
-
-<div align="center">
-
-<img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/42c33168-c80a-4f19-92a1-c89bacace494" />     
-
-THATSMY ART YAYYAY AAAAAH!!!!!!!!!
+  </details> 
