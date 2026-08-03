@@ -37,3 +37,7 @@ ${\textsf{\color{#774414}everyone jst iwcare i dont have a specific age range ok
 ![link](https://komarev.com/ghpvc/?username=VintageNight&style=plastic&label=AntiquesOwned!&color=af8e42&abbreviated=true) 
 
 <div align="center">
+
+<img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/42c33168-c80a-4f19-92a1-c89bacace494" />     
+
+THATSMY ART YAYYAY AAAAAH!!!!!!!!!
