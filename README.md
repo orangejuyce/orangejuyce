@@ -12,18 +12,22 @@ ${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69
 ${\textsf{\color{#F1E4E8}DO NOT INTERACT!!}}$  
 ${\textsf{\color{#D8C7CE}Profics/pro/darkshippers}}$  
 ${\textsf{\color{#CEB1BE}Sexual jokes pls iwc unless ik u}}$  
-${\textsf{\color{#C4929A}Zoos, SH/SA enfluencers}}$  
-${\textsf{\color{#B97375}Tcoaal + dark humor}}$  
+${\textsf{\color{#C4929A}Zoos, SH/SA enfluencers and dark humor}}$  
+${\textsf{\color{#B97375}Tcoaal}}$  
 ${\textsf{\color{#966265}Ppl who age up children in general}}$  
-${\textsf{\color{#735055}Sarklings / sark supporters}}$  
+${\textsf{\color{#735055}Sarklings / Sark supporters, Anyone who fw @crippydaff since she supports SARK.}}$  
 ${\textsf{\color{#966265}Hazbin hotel / Helluva boss fans}}$  
-${\textsf{\color{#B97375}Sth and Dw pls iwecau most of yall be weird srry..}}$  
-${\textsf{\color{#C4929A}Qwel supporters}}$  
-${\textsf{\color{#CEB1BE}People who fw my opps yall r gettin blocked bruh}}$  
+${\textsf{\color{#B97375}Sth n dw iwecuf sorry.}}$  
+${\textsf{\color{#C4929A}Qwel supporters as well as ppl who r friends w/ @sw33tsug4rcookie}}$  
+${\textsf{\color{#CEB1BE}If you associate with anyone at the proship tree just get out bruh bsfr}}$  
 ${\textsf{\color{#D8C7CE}Iwcare all ages ok.. ok}}$  
 ${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper and x unpleasant makes me uncomfy srry}}$
 
-${\textsf{\color{#F1E4E8}art is mine teeeheee... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!
+
+${\textsf{\color{#F1E4E8}art is mine yay!!... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!   
+
+<a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_28#slide=id.g3f650ad8d1d_0_28
+">ReadMyDocAbout@sw33tsug4rcookie</a>
 
 <div align="center">
   
