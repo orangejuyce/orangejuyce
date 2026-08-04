@@ -21,7 +21,7 @@ ${\textsf{\color{#B97375}Sth n dw iwecuf sorry.}}$
 ${\textsf{\color{#C4929A}Qwel supporters}}$  
 ${\textsf{\color{#CEB1BE}If you associate with anyone at the proship tree just get out bruh bsfr}}$  
 ${\textsf{\color{#D8C7CE}Iwcare all ages ok.. ok}}$  
-${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper and x unpleasant makes me uncomfy srry}}$
+${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper srry makes me uncomfy,,}}$
 
 
 ${\textsf{\color{#F1E4E8}art is mine yay!!... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!   
