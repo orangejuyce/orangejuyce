@@ -27,7 +27,7 @@ ${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper and x unpleasant makes me u
 ${\textsf{\color{#F1E4E8}art is mine yay!!... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!   
 
 <a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_28#slide=id.g3f650ad8d1d_0_28
-">ReadMyDocAbout@sw33tsug4rcookie</a>
+">ReadMyDoc</a>
 
 <div align="center">
   
