@@ -1,4 +1,6 @@
 <div align="center">
+
+${\textsf{\color{#F1E4E8}Best people on ponytown}}$ <a href="https://github.com/ghastlyknight">Sol</a> <a href="https://github.com/MUSE-ical">Eve</a> <a href="https://github.com/johtrio">Vil</a>  <a href="https://github.com/Viinixxs">Phoenix</a> <a href="https://github.com/lazikoly">Lazy</a> <a href="https://github.com/skuix">Skylar</a> <a href="https://github.com/NoLoveInTheHouseOfG0ld">Bella</a> ${\textsf{\color{#F1E4E8}+ Moots}}$
   
 ![link](https://media.discordapp.net/attachments/1448557270937108605/1533763052862967860/Untitled836.png?ex=6a71aba7&is=6a705a27&hm=60258a2e3edc9cbc64ec9def1da9b3f25f3155fcb6ec023b8d8f49b38aca842d&=&format=webp&quality=lossless&width=512&height=401)
 
