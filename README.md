@@ -5,7 +5,8 @@
 ![](https://file.garden/aWXs9X2vkSBfdVZ-/7ff6f67d.png)    ${\textsf{\color{#F1E4E8}H}}$ ${\textsf{\color{#D8C7CE}O}}$ ${\textsf{\color{#CEB1BE}L}}$ ${\textsf{\color{#C4929A}L}}$ ${\textsf{\color{#B97375}O}}$ ${\textsf{\color{#966265}W}}$   
 ${\textsf{\color{#F1E4E8}1}}$ ${\textsf{\color{#D8C7CE}7}}$   
 ${\textsf{\color{#CEB1BE}H}}$  ${\textsf{\color{#C4929A}e}}$  ${\textsf{\color{#B97375}/}}$  ${\textsf{\color{#966265}V}}$  ${\textsf{\color{#69797A}o}}$  ${\textsf{\color{#648D8D}i}}$  ${\textsf{\color{#5FA19F}d}}$   
-${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69797A}H}}$ ${\textsf{\color{#735055}.}}$ ${\textsf{\color{#966265}W}}$ ${\textsf{\color{#B97375}2}}$ ${\textsf{\color{#C4929A}I}}$   ![](https://file.garden/aWXs9X2vkSBfdVZ-/72cc5809.png)
+${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69797A}H}}$ ${\textsf{\color{#735055}.}}$ ${\textsf{\color{#966265}W}}$ ${\textsf{\color{#B97375}2}}$ ${\textsf{\color{#C4929A}I}}$   ![](https://file.garden/aWXs9X2vkSBfdVZ-/72cc5809.png)   
+![link](https://file.garden/aWXs9X2vkSBfdVZ-/button-88x31.gif)  ![link](https://file.garden/aWXs9X2vkSBfdVZ-/button-88x31%20(2).gif)
 
 <details><summary><b> Dni stuffs.. </b> </summary> 
 
@@ -24,7 +25,7 @@ ${\textsf{\color{#D8C7CE}Iwcare all ages ok.. ok}}$
 ${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper srry makes me uncomfy,,}}$
 
 
-${\textsf{\color{#F1E4E8}art is mine yay!!}}$ ^o^!!   
+${\textsf{\color{#F1E4E8}Creds : Art is mine yipee!, So r the buttons and pixel recolors}}$ ^o^!!   
 
 <a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_0#slide=id.g3f650ad8d1d_0_0">ReadMyDoc</a>
 
