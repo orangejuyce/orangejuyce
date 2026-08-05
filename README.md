@@ -2,10 +2,10 @@
   
 ![link](https://media.discordapp.net/attachments/1448557270937108605/1533763052862967860/Untitled836.png?ex=6a71aba7&is=6a705a27&hm=60258a2e3edc9cbc64ec9def1da9b3f25f3155fcb6ec023b8d8f49b38aca842d&=&format=webp&quality=lossless&width=512&height=401)
 
-![](https://file.garden/aRJiOL-RcxklS7T1/pixel_1.png)    ${\textsf{\color{#F1E4E8}H}}$ ${\textsf{\color{#D8C7CE}O}}$ ${\textsf{\color{#CEB1BE}L}}$ ${\textsf{\color{#C4929A}L}}$ ${\textsf{\color{#B97375}O}}$ ${\textsf{\color{#966265}W}}$   
+![](https://file.garden/aWXs9X2vkSBfdVZ-/7ff6f67d.png)    ${\textsf{\color{#F1E4E8}H}}$ ${\textsf{\color{#D8C7CE}O}}$ ${\textsf{\color{#CEB1BE}L}}$ ${\textsf{\color{#C4929A}L}}$ ${\textsf{\color{#B97375}O}}$ ${\textsf{\color{#966265}W}}$   
 ${\textsf{\color{#F1E4E8}1}}$ ${\textsf{\color{#D8C7CE}7}}$   
 ${\textsf{\color{#CEB1BE}H}}$  ${\textsf{\color{#C4929A}e}}$  ${\textsf{\color{#B97375}/}}$  ${\textsf{\color{#966265}V}}$  ${\textsf{\color{#69797A}o}}$  ${\textsf{\color{#648D8D}i}}$  ${\textsf{\color{#5FA19F}d}}$   
-${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69797A}H}}$ ${\textsf{\color{#735055}.}}$ ${\textsf{\color{#966265}W}}$ ${\textsf{\color{#B97375}2}}$ ${\textsf{\color{#C4929A}I}}$   ![](https://file.garden/aRJiOL-RcxklS7T1/pixel_2.png)
+${\textsf{\color{#5FA19F}C}}$ ${\textsf{\color{#648D8D}+}}$ ${\textsf{\color{#69797A}H}}$ ${\textsf{\color{#735055}.}}$ ${\textsf{\color{#966265}W}}$ ${\textsf{\color{#B97375}2}}$ ${\textsf{\color{#C4929A}I}}$   ![](https://file.garden/aWXs9X2vkSBfdVZ-/72cc5809.png)
 
 <details><summary><b> Dni stuffs.. </b> </summary> 
 
@@ -24,7 +24,7 @@ ${\textsf{\color{#D8C7CE}Iwcare all ages ok.. ok}}$
 ${\textsf{\color{#F1E4E8}selfcest of Infected/Kasper srry makes me uncomfy,,}}$
 
 
-${\textsf{\color{#F1E4E8}art is mine yay!!... pixel recolors by @MUSE-ical my bestie}}$ ^o^!!   
+${\textsf{\color{#F1E4E8}art is mine yay!!}}$ ^o^!!   
 
 <a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_0#slide=id.g3f650ad8d1d_0_0">ReadMyDoc</a>
 
