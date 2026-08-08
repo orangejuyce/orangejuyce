@@ -14,23 +14,18 @@ ${\textsf{\color{#e6c1b3}C+H}}$ ${\textsf{\color{#e6ad98}W2I}}$  ![](https://fil
   
   ![link](https://file.garden/aWXs9X2vkSBfdVZ-/2026_08_06_0ao_Kleki.png) </b> </summary> 
   
-${\textsf{\color{#ee99ae}Profics/pro/darkshippers}}$  
-${\textsf{\color{#ffccce}Sexual jokes pls iwc unless ik u}}$  
-${\textsf{\color{#fff9e5}Zoos, SH/SA enfluencers and dark humor}}$  
-${\textsf{\color{#ffe5cc}Tcoaal}}$  
-${\textsf{\color{#fad3ac}Ppl who age up children in general}}$  
-${\textsf{\color{#ffe5cc}Sarklings / Sark supporters}}$  
-${\textsf{\color{#fff9e5}Hazbin hotel / Helluva boss fans}}$  
-${\textsf{\color{#ffccce}Sth n dw iwecuf sorry.}}$  
-${\textsf{\color{#ee99ae}Qwel supporters AND any dw drama}}$  
-${\textsf{\color{#ffccce}If you associate with anyone at the proship tree just get out bruh bsfr}}$  
-${\textsf{\color{#fff9e5}Iwcare all ages ok.. ok}}$  
-${\textsf{\color{#ffe5cc}selfcest of Infected/Kasper and folly x mark/walter}}$   
-${\textsf{\color{#fad3ac}Anyone who misgenders canon nonbinary characters..}}$   
-${\textsf{\color{#ffe5cc}Ppl who make canon lesbian/gay characters straight...eugh}}$   
-
+${\textsf{\color{#ee99ae}Pro-fics/ships/tree}}$  
+${\textsf{\color{#ffccce}Zoophiles}}$  
+${\textsf{\color{#fff9e5}Dark humor and extreme sexual behavior}}$  
+${\textsf{\color{#ffe5cc}Tcoaal, Hazbin hotel n Helluva boss}}$  
+${\textsf{\color{#fad3ac}Aging up children}}$  
+${\textsf{\color{#ffe5cc}Rapists n rapist character supporters}}$  
+${\textsf{\color{#fff9e5}Qwel supporters n ANY drama in general}}$  
+${\textsf{\color{#ffccce}Selfcest of Infected/Kasper sorry..}}$  
+${\textsf{\color{#ee99ae}Abelism, Homophobia, Transphobia n Racism/Colorism}}$   
 
 ${\textsf{\color{#F1E4E8}Creds : Art is mine yipee!, So r the buttons and pixel recolors}}$ ^o^!!   
+${\textsf{\color{#F1E4E8}Iwcare/caution all ages ok? ok..}}$
 
 <a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_0#slide=id.g3f650ad8d1d_0_0">ReadMyDoc</a>
 
