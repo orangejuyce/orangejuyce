@@ -22,7 +22,7 @@ ${\textsf{\color{#fad3ac}Ppl who age up children in general}}$
 ${\textsf{\color{#ffe5cc}Sarklings / Sark supporters}}$  
 ${\textsf{\color{#fff9e5}Hazbin hotel / Helluva boss fans}}$  
 ${\textsf{\color{#ffccce}Sth n dw iwecuf sorry.}}$  
-${\textsf{\color{#ee99ae}Qwel supporters}}$  
+${\textsf{\color{#ee99ae}Qwel supporters AND any dw drama}}$  
 ${\textsf{\color{#ffccce}If you associate with anyone at the proship tree just get out bruh bsfr}}$  
 ${\textsf{\color{#fff9e5}Iwcare all ages ok.. ok}}$  
 ${\textsf{\color{#ffe5cc}selfcest of Infected/Kasper and folly x mark/walter}}$   
