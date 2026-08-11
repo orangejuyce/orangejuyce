@@ -2,7 +2,7 @@
   
 ![link](https://file.garden/aWXs9X2vkSBfdVZ-/Untitled903_20260811122752.webp)
 
-![](https://file.garden/aWXs9X2vkSBfdVZ-/309a9000.png) ${\textsf{\color{#9d8bb5}H}}$ ${\textsf{\color{#b6c1e1}O}}$ ${\textsf{\color{#efe9ed}L}}$ ${\textsf{\color{#efe9ed}L}}$ ${\textsf{\color{#f1c4e5}O}}$ ${\textsf{\color{#f0a6c9}W}}$   
+![](https://file.garden/aWXs9X2vkSBfdVZ-/309a9000.png) ${\textsf{\color{#9d8bb5}H}}$ ${\textsf{\color{#b6c1e1}O}}$ ${\textsf{\color{#ccdbed}L}}$ ${\textsf{\color{#efe9ed}L}}$ ${\textsf{\color{#f1c4e5}O}}$ ${\textsf{\color{#f0a6c9}W}}$   
 ${\textsf{\color{#f0a6c9}17}}$ ${\textsf{\color{#b6c1e1}He/Void}}$  
 ${\textsf{\color{#9d8bb5}Ocd}}$ ${\textsf{\color{#efe9ed}Adhd}}$ ${\textsf{\color{#f1c4e5}Dyslexia}}$   
 ${\textsf{\color{#ccdbed}C+H}}$ ${\textsf{\color{#f1c4e5}W2I}}$  ![](https://file.garden/aWXs9X2vkSBfdVZ-/403679f7.png)   
