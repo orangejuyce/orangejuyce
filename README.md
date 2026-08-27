@@ -2,17 +2,9 @@
   
 ![nsns](https://file.garden/aWXs9X2vkSBfdVZ-/Untitled2_20260823194719.webp)
 
-meowmeow mentions below >_<!!       
-
-${\textsf{\color{#b80000}Irl fam + online fammies!!}}$  <a href="https://github.com/MUSE-ical">Kori</a>  <a href="https://github.com/ghastlyknight">Sol</a>  <a href="https://github.com/lazikoly">Lazy</a>  <a href="https://github.com/PUNK-REBEL">Nicky</a>  <a href="https://github.com/NoLoveInTheHouseOfG0ld">Bella</a>     
-${\textsf{\color{#d66700}My DEMONIC children...}}$ ^_^!!  <a href="https://github.com/johtrio">Vil</a>  <a href="https://github.com/Viinixxs">Phoenix</a>  <a href="https://github.com/mizzcakes">Mizz</a>      
-${\textsf{\color{#f5ff55}PAWESOME FRIENDOS1!!}}$  <a href="https://github.com/1PWNn00bz">Whyatt</a>  <a href="https://github.com/unpleasant-like">Mutt</a>  <a href="https://github.com/subspace-kisser">Kirian</a>  <a href="https://github.com/corner-dweller">Gabbie</a>  <a href="https://github.com/skuix">Skylar</a>        
-
-.+ Wizard, Moots & others w/out gits!!
-
 <details><summary><b> 
   
-  ![link](https://file.garden/aWXs9X2vkSBfdVZ-/1c0cdf17.gif) </b> </summary> 
+   </b> </summary> 
 
 ${\textsf{\color{#b80000}Dni below!!}}$
   
