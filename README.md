@@ -2,7 +2,7 @@
   
 ![nsns](https://file.garden/aWXs9X2vkSBfdVZ-/Untitled2_20260823194719.webp)
 
-${\textsf{\color{#f2a300}Awwwe yooo thanks @styletown 1!!1}}$
+${\textsf{\color{#f2a300}Awwwe yooo thanks @style-town 1!!1}}$
 
 <img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/e54aa624-3ed4-4f5a-83c6-b1e6bd472858" />
 
