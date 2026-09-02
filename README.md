@@ -5,7 +5,7 @@ ${\textsf{\color{#e9ebd4}old user - VintageNight yes hi guys}}$
   
 ![jolly](https://file.garden/aWXs9X2vkSBfdVZ-/Untitled55_20260902030047.webp)
 
-![link](https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/2560c9d1d2d874bf-79/s500x750/ccad2f5715087c18b1ee5d3cc760eac91e865950.gifv) ![link](https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/2560c9d1d2d874bf-79/s500x750/ccad2f5715087c18b1ee5d3cc760eac91e865950.gifv)
+![link](https://64.media.tumblr.com/adec81fd2dbd54f9e86fa574ebab52ea/2560c9d1d2d874bf-79/s500x750/ccad2f5715087c18b1ee5d3cc760eac91e865950.gifv)
 
 <details><summary><b> 
   
