@@ -3,6 +3,7 @@
 
 ${\textsf{\color{#dde3c7}Pt's top kindest players}}$ <a href="https://github.com/style-town">@style-town</a> ${\textsf{\color{#dde3c7}tysm!!}}$     
 ${\textsf{\color{#dde3c7}old user : VintageNight oh yeaaaa hi guyzss}}$
+${\textsf{\color{#dde3c7}ty 4 the gifted strawpage yoo big win}$  <a href="https://github.com/amseiii">kori</a>
 
 <div align="center">
 
