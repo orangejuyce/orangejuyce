@@ -1,15 +1,17 @@
 
+<div align="center">    
+
+![sjf](https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0ko_Kleki.png)
+
 <div align="center">
-
-${\textsf{\color{#dde3c7}Pt's top kindest players}}$ <a href="https://github.com/style-town">@style-town</a> ${\textsf{\color{#dde3c7}tysm!!}}$     
-${\textsf{\color{#dde3c7}old user : VintageNight oh yeaaaa hi guyzss}}$     
-
-<div align="center">
-
-<img width="700" height="400" alt="885bf6b2cd0b3dddda1e62a1e839feb5" src="https://github.com/user-attachments/assets/0a855ffc-48e2-40de-b917-d6dbbed2741b" />
  
-<a href= "https://byisiifdsmkf.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04c_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04b_Kleki.png" alt= "Border 1"></a>  
+<a href= "https://pronouns.cc/@shrimptoastz"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki%20(1).png" alt= "Border 1"></a> <a href= "https://googleitughh.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kg_Kleki.png" alt= "Border 1"></a> 
 
-<a href= "https://googleitughh.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki%20(1).png" alt= "Border 1"></a>  <a href= "https://abc123.atabook.org/"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki.png" alt= "Border 1"></a> 
+${\textsf{\color{#f53d91}read}}$ ${\textsf{\color{#ffbba8}my}}$ ${\textsf{\color{#fef9d3}doc}}$
 
-THSI IS IN WIP ILL FINISH IT LATER GRROWLSSS.
+<details><summary><b> 
+    </b> </summary> 
+
+<a href="https://docs.google.com/presentation/d/1OPK_nfXha8AV5QytHLvgsMq8EoLIofCCADkMUVnkNz8/edit?slide=id.g3f650ad8d1d_0_0#slide=id.g3f650ad8d1d_0_0">sw33tsug4rcookie exposé</a>
+
+  </details> 
