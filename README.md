@@ -3,7 +3,6 @@
 
 ${\textsf{\color{#dde3c7}Pt's top kindest players}}$ <a href="https://github.com/style-town">@style-town</a> ${\textsf{\color{#dde3c7}tysm!!}}$     
 ${\textsf{\color{#dde3c7}old user : VintageNight oh yeaaaa hi guyzss}}$     
-${\textsf{\color{#dde3c7}ty 4 the gifted strawpage yoo big win}}$  <a href="https://github.com/amseiii">kori</a>
 
 <div align="center">
 
@@ -11,6 +10,6 @@ ${\textsf{\color{#dde3c7}ty 4 the gifted strawpage yoo big win}}$  <a href="http
  
 <a href= "https://byisiifdsmkf.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04c_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04b_Kleki.png" alt= "Border 1"></a>  
 
-<a href= "https://bigwinn.straw.page/"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki%20(1).png" alt= "Border 1"></a>  <a href= "https://abc123.atabook.org/"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki.png" alt= "Border 1"></a> 
+<a href= "https://googleitughh.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki%20(1).png" alt= "Border 1"></a>  <a href= "https://abc123.atabook.org/"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_05_04d_Kleki.png" alt= "Border 1"></a> 
 
 THSI IS IN WIP ILL FINISH IT LATER GRROWLSSS.
