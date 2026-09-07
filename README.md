@@ -5,7 +5,7 @@
 
 <div align="center">
  
-<a href= "https://pronouns.cc/@shrimptoastz"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki%20(1).png" alt= "Border 1"></a> <a href= "https://googleitughh.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kg_Kleki.png" alt= "Border 1"></a> 
+<a href= "https://pronouns.cc/@shrimptoastz"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki%20(1).png" alt= "Border 1"></a> <a href= "https://shardilverisreal.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kg_Kleki.png" alt= "Border 1"></a> 
 
 ![yuh](https://file.garden/aWXs9X2vkSBfdVZ-/image_7.webp)
 
