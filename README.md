@@ -12,9 +12,9 @@
 ${\textsf{\color{#f53d91}read}}$ ${\textsf{\color{#ffbba8}my}}$ ${\textsf{\color{#fef9d3}doc}}$
 
 <details><summary><b> 
-    </b> </summary> 
+    </b> </summary>   
 
-![ja](https://file.garden/aWXs9X2vkSBfdVZ-/image_6.webp)
+<a href= "https://github.com/amseiii"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/image_6.webp" alt= "Border 1"></a>
 
 ${\textsf{\color{#f53d91}I do NOT condone any harrassment towards suna or anyone affiliated with her}}$
 ${\textsf{\color{#ffbba8}Please refrain from starting drama with me over this OR even talking about this situation with me.}}$
