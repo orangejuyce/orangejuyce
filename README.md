@@ -7,6 +7,21 @@
  
 <a href= "https://pronouns.cc/@shrimptoastz"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki%20(1).png" alt= "Border 1"></a> <a href= "https://shardilverisreal.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kh_Kleki.png" alt= "Border 1"></a>  <a href= "https://insertcoolioname.straw.page"><img src= "https://file.garden/aWXs9X2vkSBfdVZ-/2026_09_06_0kg_Kleki.png" alt= "Border 1"></a> 
 
+${\textsf{\color{#fef9d3}Pt}}$  ${\textsf{\color{#ffbba8}Rewards}}$ ${\textsf{\color{#f53d91}!!}}$
+
+<details><summary><b> 
+    </b> </summary>
+
+<img width="806" height="162" alt="image" src="https://github.com/user-attachments/assets/2c986585-b0e7-4c39-b4dd-4fd2decfc30c" />
+
+
+<img width="794" height="46" alt="Screenshot 2026-09-08 215330" src="https://github.com/user-attachments/assets/d2e2c038-6d11-45c2-b727-b356da12ad33" />
+
+<img width="352" height="52" alt="Screenshot 2026-09-08 215408" src="https://github.com/user-attachments/assets/ccb6618e-178d-4a5f-9d96-cfbd2532a9e1" />
+
+
+   </details> 
+
 <a href="https://github.com/amseiii"><img src="https://file.garden/aWXs9X2vkSBfdVZ-/image_7.webp" alt="Border 1"></a>
 
 ${\textsf{\color{#f53d91}read}}$ ${\textsf{\color{#ffbba8}my}}$ ${\textsf{\color{#fef9d3}doc}}$
